@@ -1,4 +1,4 @@
-# 
+# New NordVPN extensions for Mac OS | Elite NordVPN extensions for PC Windows. Featuring breach monitoring and data export — optimized for maximum performance on every platform.
 
 
 
